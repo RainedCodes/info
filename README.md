@@ -11,7 +11,7 @@
 
 - currently learning **How to make better renders and improve with photoshop**
 
-- How to reach me **discord.gg/**
+- join the CA discord since I'm mostly active there
 
 - Fun fact **I'm somehow decent at a block game.**
 
